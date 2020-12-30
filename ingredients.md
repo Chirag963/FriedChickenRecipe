@@ -1,0 +1,1 @@
+Fresh Chicken , cornFlakes , Milk , Eggs , Flour , cookingOil , Yoghurt , RedChilliPowder , turmuricPowder , Salt , Lemon , pepperpowder.
